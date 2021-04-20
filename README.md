@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @tenet-tenet
+- 👀 I’m interested in cinema, acting and computers
+- 🌱 I’m currently learning python
+- 📫 How to reach me on instagram @tommaso.gerardo
